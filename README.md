@@ -1,1 +1,1 @@
-по видео из 29 недели
+according to the video from the 29th week
